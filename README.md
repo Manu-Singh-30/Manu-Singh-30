@@ -15,4 +15,4 @@ I aim to learn programming, explore new technologies, and build real-world proje
 - Problem Solving
 
 ## 📫 Connect With Me
-- LinkedIn: (add later)
+- LinkedIn: www.linkedin.com/in/manu-30-singhx
